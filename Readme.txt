@@ -1,1 +1,1 @@
-# Bandidos MC Solo
+Bandidos MC Solo
